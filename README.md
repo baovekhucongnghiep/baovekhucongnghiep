@@ -1,4 +1,4 @@
-## Hi there 👋
+
 Công ty Bảo vệ Ngày & Đêm - CN Tây Bắc Sài Gòn với bề dày hơn 23 năm kinh nghiệm, tự hào là đối tác an ninh chiến lược của nhiều doanh nghiệp lớn như EVN, Mercedes-Benz. Chúng tôi khẳng định vị thế là công ty bảo vệ khu công nghiệp uy tín hàng đầu, chuyên cung cấp giải pháp dịch vụ bảo vệ khu công nghiệp toàn diện, vận hành nghiêm ngặt theo tiêu chuẩn ISO 9001:2015.
 
 Với đội ngũ nhân sự tinh nhuệ và quy trình tuần tra hiện đại, chúng tôi cam kết bảo vệ khu công nghiệp khỏi mọi nguy cơ thất thoát tài sản hay mất an ninh trật tự. Đặc biệt, khách hàng sẽ luôn an tâm tuyệt đối với gói bảo hiểm rủi ro lên đến 25 tỷ đồng. Quý doanh nghiệp tại TPHCM và các tỉnh lân cận như Tây Ninh, Long An, Bình Dương, Đồng Nai có nhu cầu, hãy liên hệ ngay với chúng tôi để nhận báo giá dịch vụ bảo vệ khu công nghiệp chi tiết và cạnh tranh nhất thị trường hiện nay.
